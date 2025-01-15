@@ -27,8 +27,8 @@
 ![11](https://github.com/user-attachments/assets/9dd352c0-e92f-409b-bc4e-b8135cbb5bdb)
 
 
-![22](https://github.com/user-attachments/assets/6425bc13-ee29-407d-8e3e-0fb0e1c50162)
 
+![22](https://github.com/user-attachments/assets/896667eb-6ef9-438f-94ed-b8b03c9ef960)
 
 
 
